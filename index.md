@@ -1,3 +1,3 @@
 ---
-title: Welcome to yukancooktoo's recipe page!
+title: Welcome to my recipe page!
 ---

@@ -3,7 +3,7 @@ title: "Air Fried Gnocchi and Tofu Fritters in a Thai Red Curry glaze"
 date: 2026-02-21
 ---
 
-#![Image desc](/yukans-recipes/images/title/image_name.jpg)
+![Image desc](/yukans-recipes/images/air-fried-gnocchi/1_air_fried_gnocchi.jpg)
 
 Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DVBZ4epk7MI/">here!</a>
 

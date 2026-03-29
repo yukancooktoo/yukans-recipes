@@ -11,12 +11,11 @@ Two in one recipe! Lucky you. This is an Air-Fried Gnocchi stir fry mixed with t
 
 **Tofu and bean fritters**
 
-250g Extra firm tofu
-
-250g (drained) Canned Butter/Cannelli beans
-3-4 tbsp Spices of your choosing
-6 tbsp flour (GF works)
-Neutral oil
+- 250g Extra firm tofu
+- 250g (drained) Canned Butter/Cannelli beans
+- 3-4 tbsp Spices of your choosing
+- 6 tbsp flour (GF works)
+- Neutral oil
 
 1. Drain the beans and add to a large bowl/food processor. Mash to a paste, ensuring each bean is smashed. You can use your hands
 2. Crumble in firm tofu. Mash and mix well. Don't blend the tofu to a paste, small chunks are fine in this

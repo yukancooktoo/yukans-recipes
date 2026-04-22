@@ -3,7 +3,7 @@ title: "Breadfruit Tostones"
 date: 2025-12-18
 ---
 
-![Image of my Breadfruit Tostones](/yukans-recipes/images/1_peach_chutney.jpg)
+![Image of my Breadfruit Tostones](/yukans-recipes/breadfruit-tostones/1_bt.jpg)
 
 Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DSax8YoE5Uz/">here!</a>
 

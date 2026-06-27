@@ -38,6 +38,7 @@ After exams and preparation for a research conference, I finally have time to th
 The amounts in this recipe follow a ratio: Roughly equal parts (volume) Cucumber, Herbs, and Yoghurt
 For a large heaped spoon of yoghurt (~60g), I use 1 small clove garlic, 1 tbsp olive oil, and 2 tsp vinegar
 Tzatziki is normally made with a good red wine vinegar. If you have another vinegar you really like (I used Sherry), you can use that! Otherwise, use lemon juice.
+High quality ingredients matter here. If you don't have a good vinegar, use lemon juice. If you don't like your olive oil on its own, don't add it!
 
 - Cucumber
 - Dill and/or Mint
@@ -45,7 +46,7 @@ Tzatziki is normally made with a good red wine vinegar. If you have another vine
 - Garlic
 - Olive oil
 - Salt
-- Red wine vinegar (substitute with another vinegar or lemon juice)
+- Vinegar/Lemon juice
 
 1. Shred the cucumber over a sieve, spread out and lightly coat with salt. Let sit for 20 minutes
 2. Lightly press the cucumber against the sieve to squeeze out as much water as possible. This water can be used for juices 

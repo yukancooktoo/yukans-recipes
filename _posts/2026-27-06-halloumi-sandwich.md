@@ -1,1 +1,57 @@
+---
+title: "Halloumi, Tzatziki, and Tomato sandwich"
+date: 2026-06-27
+---
 
+![Image of my lactofermented peach chutney](/yukans-recipes/images/halloumi-sandwich/1_hs.jpg)
+
+#Visit the instagram post <a href="https://www.instagram.com/p/DWdN2aqkx6i/">here!</a>
+
+After exams and preparation for a research conference, I finally have time to think of and cook a nice meal for myself! It ended up being something quite simple, almost refreshing, but fatty and comforting nonetheless. This Halloumi, Tzatziki, and Roast Tomato on Ciabatta will be on my mind until another burst of inspiration hits.
+
+
+Hallomi Sandwich (1-2 sandwiches)
+
+Any roll/Bread
+180-200g Halloumi
+2 Roma Tomatoes
+Olive oil
+Salt, Pepper
+MSG (optional)
+Honey (optional)
+
+1. To prepare the halloumi, cut it into strips and submerge in hot water for 10 minutes in hot water. You can use water straight off the boil, but be careful! The strips should be just under 5mm thick, they need some thickness otherwise the end product will be quite dry.
+2. Slice the roma tomatoes at about half the thickness of the halloumi strips. Place onto baking paper and sprinkle with a little salt and MSG. Bake or airfry at 140C until wrinkled with only light browning (15-20 minutes)
+3. After soaking, discard the liquid and pat the halloumi dry. Preheat a pan to medium heat, coat with olive oil (the oil should be fragrant, shimmer on the surface, but no smoking at all), and sprinkle a little salt evenly on the pan. Place the halloumi strips onto the pan, ensuring they don't touch each other
+4. Flip the strips only when they release with almost no resistance from the pan. They should have a nice browning on one side. One the other side releases with no resistance, set them aside.
+5. Slice your bread if needed. Toast with a little oil, if using a roll/bun, toast the exterior lightly before removing.
+6. Assemble the sandwich: Bottom bun, Tzatziki, Halloumi, Tomato, Pepper + Honey, Top bun
+
+Notes:
+1. Store bough halloumi staight out of the packet can be quite dry/brittle when cooked. Soaking is an important step, the halloumi absorbs a lot of the water and becomes a lot squishier. Good moist halloumi can "squeak" against your teeth.
+2. Tomatoes contain a lot of water and glutamates. Roasting them on a low heat lowers the moisture content, concentrating the flavors. The additional MSG put these flavors into overdrive
+3. Honey brings a light sweetness to a sandwich that already has strong freshness, acidity, fat, and umami. I highly recommend this or an alternative. I used an orange infused honey
+
+Tzatziki
+
+Cucumber
+Dill and/or Mint
+Greek Yoghurt
+Garlic
+Olive oil
+Salt
+Red wine vinegar (substitute with another vinegar or lemon juice)
+
+The amounts in this recipe follow a ratio: Roughly equal parts (volume) Cucumber, Herbs, and Yoghurt
+For a large heaped spoon of yoghurt (~60g), I use 1 small clove garlic, 1 tbsp olive oil, and 2 tsp Sherry vinegar
+
+1. Shred the cucumber over a sieve, spread out and lightly coat with salt. Let sit for 20 minutes
+2. Lightly press the cucumber against the sieve to squeeze out as much water as possible. This water can be used for juices 
+Optional: Wrap a clean cloth around the cucumber to squeeze out even more water
+3. Remove large stalks from the herbs. Keep only the leaves, and finely dice 
+4. With all garlic cloves, remove the bottom and slice in half. Remove any sprout. Use a grater to shred or dice as finely as possible
+Optional: Soak the raw garlic in hot water for ten minutes to remove the bite and strong aftertaste while keeping the zingand flavor
+Optional: Use a confit/roasted garlic clove for a different
+5. In a bowl, mix the cucumber, chopped herbs, yoghurt, olive oil, and garlic until well incorporated. Add vinegar to taste
+
+It should be thick enough to scoop with a spoon

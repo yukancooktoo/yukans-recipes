@@ -1,7 +1,8 @@
 ---
-title: "Halloumi, Tzatziki, and Tomato sandwich - A guide to preparing Halloumi and Tzatziki"
+title: "Halloumi, Tzatziki, and Roast Tomato sandwich - A guide to preparing halloumi and tzatziki"
 date: 2026-06-27
 ---
+
 
 ![Image of two Halloumi, Tzatziki, and Tomato sandwiches with Ciabatta roll](/yukans-recipes/images/halloumi-sandwich/1_hs.jpg)
 

@@ -1,13 +1,13 @@
 ---
-title: "Halloumi, Tzatziki, and Tomato sandwich"
+title: "Halloumi, Tzatziki, and Tomato sandwich - A guide to preparing Halloumi and Tzatziki"
 date: 2026-06-27
 ---
 
 ![Image of two Halloumi, Tzatziki, and Tomato sandwiches with Ciabatta roll](/yukans-recipes/images/halloumi-sandwich/1_hs.jpg)
 
-#Visit the instagram post <a href="https://www.instagram.com/p/DWdN2aqkx6i/">here!</a>
+<a href="https://www.instagram.com/p/DaHJbdhE3Bq/">Click here to see the photos!</a>
 
-After exams and preparation for a research conference, I finally have time to think of and cook a nice meal for myself! It ended up being something quite simple, more on the refreshing side, but very balanced and comforting. This Halloumi, Tzatziki, and Roast Tomato on Ciabatta will be on my mind until another burst of inspiration hits. This is a recipe for both how to prepare halloumi in general and how to make a great Tzatziki!
+After exams and preparation for a research conference, I finally have time to think of and cook a nice meal for myself! It ended up being something quite simple, more on the refreshing side, but very balanced and comforting. This Halloumi, Tzatziki, and Roast Tomato on Ciabatta will be on my mind until another burst of inspiration hits. Although its winter in Australia, this is dish screams summer time, and is perhaps even more attractive to you in the Northern hemisphere this time of year. This also serves as a guide on how to prepare halloumi in general and how to make a great Tzatziki!
 
 **Halloumi Sandwich (1-2 sandwiches)**
 

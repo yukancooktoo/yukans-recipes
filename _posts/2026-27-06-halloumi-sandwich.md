@@ -37,12 +37,15 @@ After exams and preparation for a research conference, I finally have time to th
 
 The amounts in this recipe follow a ratio: Roughly equal parts (volume) Cucumber, Herbs, and Yoghurt
 For a large heaped spoon of yoghurt (~60g), I use 1 small clove garlic, 1 tbsp olive oil, and 2 tsp vinegar
-Tzatziki is normally made with a good red wine vinegar. If you have another vinegar you really like (I used Sherry), you can use that! Otherwise, use lemon juice.
-High quality ingredients matter here. If you don't have a good vinegar, use lemon juice. If you don't like your olive oil on its own, don't add it!
+Tzatziki is normally made with a good red wine vinegar. If you have another vinegar you really like (I used Sherry), you can use that! Otherwise, use lemon juice. High quality ingredients matter here. If you don't have a good vinegar, use lemon juice. If you don't like your olive oil on its own, don't add it! The herbs are also up to you.
+
+This dip is popular across Greece, South-east Europe, and West Asia. As such, it does not follow a set recipe, and varies even household to household. We know it by Tzatziki due to the popularity of Greek cuisine. Its originally Turkic and goes by cacık. A popular name in the Balkans is Tarator, where it is sometimes served as a cold summertime soup! Regional variants can use herbs like Parsley or Thyme. 
+
+Cacık itself is more of a class of dips/sauce than a recipe like Tzatziki. These can include nuts like almonds, other vegetables like carrots, other oils like walnut oils, and spices like Aleppo pepper and sumac. The base can even be changed from yoghurt to Labneh, a yoghurt strained for long enough that the consistency is similar to cream cheese (you can make this at home easily!).
 
 - Cucumber
 - Dill and/or Mint
-- Greek Yoghurt
+- Greek Yoghurt (Any thick or strained yoghurt/vegan substitute works well)
 - Garlic
 - Olive oil
 - Salt

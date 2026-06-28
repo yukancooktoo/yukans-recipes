@@ -17,6 +17,7 @@ After exams and preparation for a research conference, I finally have time to th
 - 2 Roma Tomatoes
 - Olive oil
 - Salt, Pepper
+- Tzatziki
 - MSG (optional)
 - Honey (optional)
 
@@ -29,7 +30,7 @@ After exams and preparation for a research conference, I finally have time to th
 
 **Notes:**
 
-1. Store bough halloumi staight out of the packet can be quite dry/brittle when cooked. Soaking is an important step, the halloumi absorbs a lot of the water and becomes a lot squishier. Good moist halloumi can "squeak" against your teeth.
+1. Store bough halloumi staight out of the packet can be quite dry/brittle when cooked. Soaking is an important step, the halloumi absorbs a lot of the water and becomes a lot squishier. Good moist halloumi can "squeak" against your teeth. You should still pat it dry before frying, this removes any excess water on the surface so theres no violent reactions when it hits the pan!
 2. Tomatoes contain a lot of water and glutamates. Roasting them on a low heat lowers the moisture content, concentrating the flavors. The additional MSG put these flavors into overdrive
 3. Honey brings a light sweetness to a sandwich that already has strong freshness, acidity, fat, and umami. I highly recommend this or an alternative. I used an orange infused honey
 4. I used a seeded Ciabatta roll, but you can use any you prefer. The fillings are all soft and wet, so a harder roll like Sourdough is more ideal.

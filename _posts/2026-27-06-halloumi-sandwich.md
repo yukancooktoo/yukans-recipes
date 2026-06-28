@@ -7,7 +7,7 @@ date: 2026-06-27
 
 #Visit the instagram post <a href="https://www.instagram.com/p/DWdN2aqkx6i/">here!</a>
 
-After exams and preparation for a research conference, I finally have time to think of and cook a nice meal for myself! It ended up being something quite simple, almost refreshing, but fatty and comforting nonetheless. This Halloumi, Tzatziki, and Roast Tomato on Ciabatta will be on my mind until another burst of inspiration hits. This is a recipe for both how to prepare halloumi in general and how to make a great Tzatziki!
+After exams and preparation for a research conference, I finally have time to think of and cook a nice meal for myself! It ended up being something quite simple, more on the refreshing side, but very balanced and comforting. This Halloumi, Tzatziki, and Roast Tomato on Ciabatta will be on my mind until another burst of inspiration hits. This is a recipe for both how to prepare halloumi in general and how to make a great Tzatziki!
 
 **Halloumi Sandwich (1-2 sandwiches)**
 
@@ -52,10 +52,12 @@ Cacık itself is more of a class of dips/sauce than a recipe like Tzatziki. Thes
 - Vinegar/Lemon juice
 
 1. Shred the cucumber over a sieve, spread out and lightly coat with salt. Let sit for 20 minutes
-2. Lightly press the cucumber against the sieve to squeeze out as much water as possible. This water can be used for juices 
-_Optional: Wrap a clean cloth around the cucumber to squeeze out even more water_
+2. Press the cucumber against the sieve to squeeze out as much water as possible. This water can be used for juices 
 3. Remove large stalks from the herbs. Keep only the leaves, and finely dice 
-4. With all garlic cloves, remove the bottom and slice in half. Remove any sprout. Use a grater to shred or dice as finely as possible
-_Optional: Soak the raw garlic in hot water for ten minutes to remove the bite and strong aftertaste while keeping the zing and flavor_
-_Optional: Use a confit/roasted garlic clove for a different_
+4. With all garlic cloves, remove the bottom and slice in half. Remove the germ (the tiny sprout inside the garlic). Use a grater to shred or dice as finely as possible
 5. In a bowl, mix the cucumber, chopped herbs, yoghurt, olive oil, and garlic until well incorporated. Add vinegar to taste. It should be thick enough to scoop with a spoon
+
+**Notes:**
+1. The drier the better when it comes to the cucumber. Instead of using just a sieve, you can cup the shredded cucumber with your hands and squeeze. Alternatively, wrap the cucumber in a cloth to wring.
+2. Raw garlic in this dish can have a strong bite with an overwhelmingly extended after taste. Soak the raw garlic in hot water for ten minutes removes the aftertaste completely while keeping a good zing and flavor. You can also used a confit/roasted garlic clove if you prefer.
+3. Removing the germ is important when consuming raw garlic. The germ has harsher and more bitter flavors compared to the rest of the garlic. Younger garlic has a smaller germ; If it is barely noticable when you look in the middle, you dont have to bother removing. If the germ is so large that it spans the entire garlic clove (or even pops out the top), you should remove it even for cooking applications.
